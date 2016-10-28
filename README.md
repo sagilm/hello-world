@@ -1,2 +1,3 @@
 # hello-world
 testing
+dia1 27oct, una noche hermosa y despejada, perfecta para ignorarla mientras me debato en agonia en un mar de trabajos que nada le aportan a mi alma mas que el lobrego deseo de un fin proximo...
